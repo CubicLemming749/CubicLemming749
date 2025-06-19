@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Java
 - 💞️ I’m looking to collaborate on ... PaperMC
 - 📫 How to reach me ... Discord: elsus1719
-- 😄 Pronouns: ... He/Him
+- 😄 Pronouns: ... I'm a cash bag
 - ⚡ Fun fact: ... I'm currently working at LuckyKraft Network
 
 <!---
