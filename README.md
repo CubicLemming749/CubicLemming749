@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... PaperMC
 - 📫 How to reach me ... Discord: elsus1719
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I'm currently working at LuckyKraft Network
 
 <!---
 CubicLemming749/CubicLemming749 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
